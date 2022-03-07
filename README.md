@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- Im married to the money
+- Money isn't everything but everything needs money 💰⽣
 - 
 
 <!---
