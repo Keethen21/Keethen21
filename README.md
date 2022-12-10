@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Keethen21
-- 👀 I’m interested in money 💸 , cars 🏎
+- 👀 I’m interested in  💸, 🏎
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
